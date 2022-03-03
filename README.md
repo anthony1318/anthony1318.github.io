@@ -1,1 +1,1 @@
-Mapm of My Favourite Destionations
+Map of My Favourite Destionations
